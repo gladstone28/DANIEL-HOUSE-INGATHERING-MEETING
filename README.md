@@ -1,4 +1,4 @@
-### Daniel House Zoom Meeting Held on Friday August 2024
+### Daniel House Zoom Meeting Held on Friday 16 August 2024 starting at 7:30 pm
 
 **Attendees were as follows:**
 
