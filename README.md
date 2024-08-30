@@ -29,7 +29,7 @@ A web Application was programmed to be used for timely update of the status of t
 status of the Houses Ingathering Collection on a 24 hour, 7 day per week basis. Members can also use the web app to send comments to House leaders. Comments can take the form of messsages to raise their pledges as or to encourage and congratulate Houses.
 
 **4. Movie Night**
-It was agreed that representatives from Daniel House will meet with representatives from Esther house to finalize the details of the Movie Night fund raising event. It is suggested that the Project Team be comprised of a maximum of 4 or 5persons from Daniel and four or 5 persons from Esther House. The following person are 5 names suggested for the Daniel House team
+It was agreed that representatives from Daniel House will meet with representatives from Esther house to finalize the details of the Movie Night fund raising event. It is suggested that the Project Team be comprised of a maximum of 4 or 5persons from Daniel and four or 5 persons from Esther House. The following are 5 names suggested for the Daniel House team:
 
 1. Glodine Anderson
 2. Andrea Wanliss
