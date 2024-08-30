@@ -8,9 +8,9 @@
 4. Andrew Coley
 5. Gladstone Rose
 
-The meeting was chaired by Bro. Gladstone ROse on behalf of Bro. BJ. Bro. Gladstone had indicated that he would do so at the House Leaders/Planning Committee Meeting.
+The meeting was chaired by Bro. Gladstone Rose on behalf of Bro. BJ. Bro. Gladstone had indicated that he would do so at the House Leaders/Planning Committee Meeting.
 
-Opening Prayer was offered by Br. Gladstone
+Opening Prayer was offered by Bro. Gladstone
 
 
 #### Agenda Items
