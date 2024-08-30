@@ -46,7 +46,7 @@ The attendees at the meeting made suggestions for fund raising events as follows
 
 **3. Fruit basket Sales**
 
-It was decided that we would start the water project immediately. We will be starting with PGP water(500 mls) starting this Sunday after the worship service
+It was decided that we would start the water project immediately. We will be starting with PGP water(500 mls) starting this Sunday 18 August 2024 after the worship service. 
 A flyer would be done by mid-day on Saturday and sent through the KGUC Broadcast.
 
-Closing Prayer was offered by Sis. Jennifer VanHorne-Paul.
+Closing Prayer was offered by Sis. Jennifer Vanhorne-Paul.
