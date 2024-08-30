@@ -41,7 +41,9 @@ It was agreed that representatives from Daniel House will meet with representati
 The attendees at the meeting made suggestions for fund raising events as follows: 
 
 **1. Water Sales**
+
 **2. Pastry Sales**
+
 **3. Fruit basket Sales**
 
 It was decided that we would start the water project immediately. We will be starting with PGP water(500 mls) starting this Sunday after the worship service
